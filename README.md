@@ -1,1 +1,1 @@
-# 1st_year_material
+# Hi juniors. In this repository, I have shared whatever 1st year material I have. I hope this repo would be helping you in your acaedemics. If you want any other help, you can contact me. I will try to arrange stuffs if you want.
